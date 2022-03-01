@@ -115,32 +115,36 @@ HAVE A FUN!
 
 ## ⎝🛡️ ALPHA 🛡️⎠ Team Offcial
 
-<table>
-										<tbody>
-											<tr>
-												<td><a href="https://duanf0484.wixsite.com/achi-bro-lk"><img src="https://telegra.ph/file/652c80bc6ca6cefb89971.jpg" width="200" height="200" alt="Achi Fernando"></a></td>
-												<td><a href="https://github.com/Dark-Knight-Hiruwa"><img src="https://telegra.ph/file/75ff82ccd0a33f367159e.jpg" width="200" height="200" alt="Hiruwa"></a></td>
-												<td><a href="https://www.youtube.com/c/PearlYT-JRVSW"><img src="https://telegra.ph/file/165736f2772cc02707c8c.jpg" width="200" height="200" alt="Kasun"></a></td>
-											</tr>
-										</tbody>
-									</table>
-                  <table>
-										<tbody>
-											<tr>
-												<td><a href="https://wa.me/94717954374"><img src="https://telegra.ph/file/4786f4988fb4b24912c57.jpg" width="200" height="200" alt="Sanjula"></a></td>
-												<td><a href="https://www.youtube.com/c/TechDeiyo"><img src="https://telegra.ph/file/78760d8588364907312ff.jpg" width="200" height="200" alt="Sanjaana"></a></td>
-                        <td><a href="httsp://github.com/BlackAmda/"><img src="https://telegra.ph/file/ca981c7bba778186bbee0.jpg" width="200" height="200" alt="Thinura"></a></td>
-											</tr>
-									</table>
-                  <table>
-										<tbody>
-											<tr>
-												<td><a href="https://www.youtube.com/channel/UCAafO2_JLzGHl_Le7BTkY3A/featured"><img src="https://telegra.ph/file/aeda8f2eaafd13392f1f9.jpg" width="200" height="200" alt="DM bro"></a></td>
-												<td><a href="https://wa.me/94785972996"><img src="https://telegra.ph/file/dff347f2fcfcf64434085.jpg" width="200" height="200" alt="Pasiya"></a></td>
-												<td><a href="https://wa.me/94703164788"><img src="https://telegra.ph/file/3d995871d0857d7475495.jpg" width="200" height="200" alt="paraveen"></a></td>
-											</tr>
-										</tbody>
-									</table>
+⚜️❱⦁ 𝑂𝑤𝑛𝑒𝑟 &𝐹𝑜𝑢𝑛𝑑𝑒𝑟 - 𝐴𝑐ℎ𝑖 𝐹𝑒𝑟𝑛𝑎𝑛𝑑𝑜 
+
+⚜️❱⦁ 𝐶𝑜 𝑂𝑤𝑛𝑒𝑟 - 𝐻𝑖𝑟𝑢𝑠ℎ𝑎 𝑅𝑢𝑘𝑠ℎ𝑎𝑛 (𝑇𝑟𝑒𝑥 𝐵𝑜𝑡 𝑑𝑒𝑣𝑒𝑙𝑜𝑝𝑒𝑟) 
+
+⚜️❱⦁ 𝐺𝑟𝑎𝑝ℎ𝑖𝑐 𝐷𝑒𝑠𝑖𝑔𝑛𝑒𝑟 - 𝐾𝑎𝑠𝑢𝑛 𝑅𝑎𝑣𝑖ℎ𝑎𝑟𝑎 (𝑃𝑒𝑎𝑟𝑙 𝑔𝑟𝑜𝑢𝑝 𝑜𝑤𝑛𝑒𝑟) 
+
+⚜️❱⦁ 𝐶𝑜 𝐺𝑟𝑎𝑝ℎ𝑖𝑐 𝐷𝑒𝑠𝑖𝑔𝑛𝑒𝑟 - 𝑆𝑎𝑛𝑗𝑢𝑙𝑎 
+
+⚜️❱⦁ 𝑊𝑒𝑏 𝐷𝑒𝑣𝑒𝑙𝑜𝑝𝑒𝑟 - 𝑆𝑎𝑛𝑗𝑎𝑛𝑎𝑎 (𝑇𝑒𝑐ℎ 𝑑𝑒𝑖𝑦𝑜) 
+
+⚜️❱⦁ 𝑇𝑒𝑥𝑡 𝑐𝑟𝑒𝑎𝑡𝑒𝑟 - 𝑁𝑖𝑚𝑒𝑠ℎ 𝑀𝑎𝑑𝑢𝑠𝑎𝑛𝑘𝑎 ( ᴍʀ ͥ ɴ ͣɪ ͫᴍ ᴀ ) 
+
+⚜️❱⦁ 𝑇𝑒𝑠𝑡𝑖𝑛𝑔 𝐻𝑒𝑙𝑝𝑒𝑟 & 𝐴𝑛𝑑 𝑏𝑢𝑔 𝑓𝑖𝑥𝑖𝑛𝑔 ℎ𝑒𝑙𝑝𝑒𝑟 - 𝑇ℎ𝑖𝑛𝑢𝑟𝑎 
+
+⚜️❱⦁ 𝑉𝑖𝑝 𝐴𝑑𝑚𝑖𝑛 - 𝑚𝑎𝑛𝑜𝑗 (𝐷𝑀 𝑏𝑟𝑜) 
+
+⚜️❱⦁ 𝑉𝑖𝑝 𝑎𝑑𝑚𝑖𝑛 - 𝑝𝑎𝑠𝑖𝑛𝑑𝑢 𝑑𝑖𝑙𝑠ℎ𝑎𝑛 
+
+⚜️❱⦁ 𝑉𝑖𝑝 𝑎𝑑𝑚𝑖𝑛 - 𝐻𝑖𝑟𝑢𝑤𝑎 (𝑋𝑡𝑟𝑜𝑖𝑑 𝑇𝑒𝑎𝑚 𝐴𝑑𝑚𝑖𝑛) 
+
+⚜️❱⦁ 𝑉𝑖𝑝 𝑎𝑑𝑚𝑖𝑛 - 𝑆𝑎𝑠𝑎𝑛𝑘𝑎  (𝐵𝑜𝑡 𝑑𝑒𝑣𝑒𝑙𝑜𝑝𝑒𝑟) 
+
+⚜️❱⦁𝑀𝑒𝑚𝑏𝑒𝑟 - 𝑃𝑟𝑎𝑣𝑒𝑒𝑛 
+
+╔════════════╗
+
+║ 𝙊𝙁𝘾 𝘼𝙇𝙋𝙃𝘼 𝘽𝙊𝙏  𝙏𝙀𝘼𝙈 
+
+╚════════════╝
+
 
 ### License
 This project is protected by the `GNU General Public License v3.0.`
